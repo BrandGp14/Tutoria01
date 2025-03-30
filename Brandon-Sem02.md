@@ -15,6 +15,7 @@ Me gusta bastante el desarrollo backend y base de datos asi mismo la elaboracion
 - Explorar el mundo del ingles y dominarlo
   
 ### ¿Qué aprendí de mí mismo/a con el test y el mapa vocacional?
+con el test recalque que mi norte esta correcto y mi desicion fue acertada y con el mapa vocacional pude identificar organizar mis ideas de forma mas precisa.
 
 ## 🧱 Parte 2: Mapa personal
 ### 💡 Mapa de fortalezas y pasiones
